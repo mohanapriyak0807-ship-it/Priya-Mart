@@ -1,2 +1,0 @@
-# Priya-Mart
-Footwear 
